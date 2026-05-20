@@ -1,2 +1,1 @@
-# subangprefinals
-e commerce site
+pre finals ni subang
